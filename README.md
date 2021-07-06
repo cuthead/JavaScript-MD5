@@ -1,1 +1,1 @@
-you need one pi poly and two and
+you need one pi table and two and
