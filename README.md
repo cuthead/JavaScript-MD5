@@ -1,1 +1,1 @@
-you need poly and two and
+you need one poly and two and
