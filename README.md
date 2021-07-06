@@ -1,1 +1,1 @@
-you need one crc32 poly and two and
+you need give me five poly and two and
